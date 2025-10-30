@@ -1,15 +1,40 @@
 wip!! 
 <div> 
-<div align="center">
+<div align="left">
 <img src="https://64.media.tumblr.com/69a856dd99d6f0da4fb246ba2dd7f492/49cd6d35bb94bc9c-06/s1280x1920/3f5d4ea4f197694b6c0d4e0ea7d48cb453dff465.pnj">
+<img src="https://64.media.tumblr.com/453f52d09f2f1566c6a5ca774547e1a4/23a01eeb66e5b1df-59/s2048x3072/99773e5e38f20ddd1a398d0e0aba3d01d6c2a846.pnj">
+<img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
 
 hello (^ .. ^) my name is enjel! i'm 22 years old and i like the pony game very much.
 you can usually find me sitting at either the homestuck or the idv conerners.
 don't be afraid to say hi!! i'm very friendly but keep in mind that i may not see your message as i am often afk or off-tab. <img src="https://64.media.tumblr.com/ca01b4bde0808bf3584ef4cbb3dd0f76/b18aff3ce9323114-7c/s75x75_c1/6694e17317fece7cf72ad039c90895c4b5f73821.gifv">
 
-i'm happily taken by my partner <a href="https://sunnysonnyata.carrd.co/">Jade</a>
+<img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
 
 
+<b><i>more abt me!1</i></b>
+
+i love homestuck, idv, genshin impact, fear and hunger, cringe 2000s media, gyaru fashion, shanghai jazz, visual kei, the thistampdoesnotexist blog,
+the case study of vanitas, pandora hearts, the neopolitan colorscheme, furry art, umamusume, the silent hill franchise,
+puppies and kitties and sunshine and being niceys :)
+
+i'm happily taken by my partner sonny <3
+
+<img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
+
+<b><i>please </i>dni if:</b>
+
+are under the age of 18,
+
+engage for the purpose of discourse (i'm not interested in arguing),
+
+dislike jade harley,
+
+are profic, proship, pro endo, pro tulpa, participate in sh/edtwt
+
+<img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
+</div>
+<div align="center">
 <p> stamp collection! </p>
 <img src="https://64.media.tumblr.com/f1fe7cb7463a4d1c9ea0c2252e900e0f/70199db9eea296dd-cd/s100x200/46a09dd1488364186a0e0cbc6e5561764f28c1b0.pnj">
 <img src="https://64.media.tumblr.com/2aabd76d376faee35a18cde9b24e042b/6ae1cd485e0885b6-31/s100x200/de431b9bfabc35ed1aafe76a486ddcb803d6949f.pnj">
@@ -30,6 +55,11 @@ i'm happily taken by my partner <a href="https://sunnysonnyata.carrd.co/">Jade</
 <img src="https://64.media.tumblr.com/872d1321aa1e90e2505adeafd263f84a/67e8e56a4c66369c-9c/s250x400/1b8e358ab725877159ff8777945155fc211b6012.jpg">
 <img src="https://64.media.tumblr.com/83bee4ae3d8fd0924efb84f3e5d7ef98/67e8e56a4c66369c-30/s100x200/46da171c930899ff6584abebdea51dd94e2f9878.pnj">
 <img src="https://64.media.tumblr.com/02b4ba41c148b5f0640a9c5edc1f0725/e82a9758aa9a0ad9-93/s100x200/18d1dee773bb9a75cf065d0ef063f4f0d1438e76.pnj">
+<img src="https://64.media.tumblr.com/a51bb89e200f554de5452755fdf8bb20/39575e518c0eaf89-42/s100x200/dd15396fbfdae4a2a4893b3115a354441c555edf.pnj">
+<img src="https://64.media.tumblr.com/e42b105106efa8a0c392db39d659ea88/ba9ec6a241ac7c51-f4/s100x200/650f97fb6c4df4f3dbbf1c5b07b4ef3d35f3b78f.pnj">
+
+
+<img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
 
 <p>blinkie collection!</p>
 <img src="https://64.media.tumblr.com/bfe0f2d21bb4ba5c529e9df52baa07ae/8f3b966c768a7a38-63/s250x400/43aa0dae0cf3e9ac587af873c5e7de89dc75208d.gifv">
@@ -43,6 +73,13 @@ i'm happily taken by my partner <a href="https://sunnysonnyata.carrd.co/">Jade</
 <img src="https://64.media.tumblr.com/f37ee588a082c900227fb624b361b276/b4f3a731a7a10fbe-4b/s250x400/5e6f82681723349289d8d4c036656b48baa4afe9.gifv">
 <img src="https://64.media.tumblr.com/c5b29f56e258970ba6b3c12d52f58eef/e82a9758aa9a0ad9-07/s250x400/e4598df278d4746f51c8f250efc782169e20b6ce.pnj">
 <img src="https://64.media.tumblr.com/f28b826429f8864130664ce3b3005871/e82a9758aa9a0ad9-82/s250x400/25ef194d677e5cb4f691f5440c0afc26835f5eb7.jpg">
+  
+<img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
+
+<img src="https://64.media.tumblr.com/66c063d61ad19c06086c25d2cf25c69e/23a01eeb66e5b1df-0b/s2048x3072/5024b98c89729c352bcf95496a8f462ffeaeaaf8.pnj">
+
+peep my fursona while you're here
+<img src="https://i.imgur.com/85cDXMB.png">
 
 <img src="https://64.media.tumblr.com/786b65ef91528201dd5b96f18a316255/49cd6d35bb94bc9c-1a/s1280x1920/2ce6ad8f07753b29517586f622e6e772c73e1243.pnj">
 </div>
